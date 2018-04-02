@@ -1,3 +1,6 @@
 # practice
 to use study
-xixixiixixhahahhahahansiish nxc
+shsjhjsnajnsjdnx mn 
+mksnmdjkxnakmnmka
+masjknjkankjnkcxn;la
+
